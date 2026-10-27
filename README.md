@@ -1,5 +1,5 @@
 <p align="center">
-<img width="950" height="513" alt="image" src="[https://github.com/user-attachments/assets/a7a42477-2485-4758-b9b6-52e9d27aaed1](https://static.wikitide.net/milgramwiki/9/9d/Futa_smiling.png)" />
+[<img width="950" height="513" alt="image" src="[https://github.com/user-attachments/assets/a7a42477-2485-4758-b9b6-52e9d27aaed1](https://static.wikitide.net/milgramwiki/9/9d/Futa_smiling.png)"](https://milgram.miraheze.org/w/index.php?curid=3513) />
 </p>
 
 <p align="center">
