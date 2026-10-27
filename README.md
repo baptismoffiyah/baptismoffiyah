@@ -24,3 +24,4 @@ DNI Mahiru Shiina + Haruka Sakurai, NOTHING PERSONAL I just don't talk to double
 <p align="left"> tst
 <p align="left"> test
 <p align="left"> test
+<p align="center"> test
