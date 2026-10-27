@@ -21,5 +21,5 @@ DNI Mahiru Shiina + Haruka Sakurai, NOTHING PERSONAL I just don't talk to double
 <p align="left"> testingggggggggggggggggggggggggggggggggggggggggggg test est  <img align="center" width="250" length="250" src="https://github.com/baptismoffiyah/baptismoffiyah/blob/56a4671547ef215819e52e371341227e058e7096/test/what%20the%20hell.png">
 <p align="left"> test
 <p align="left"> test
-<p align="left"> tst
-<p align="left"> test
+<p align="center"> tst
+<p align="center"> test
