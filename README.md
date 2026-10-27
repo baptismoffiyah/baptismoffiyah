@@ -17,4 +17,3 @@ OPEN to interacting w/ doubles and sourcemates.
 <p align="center">
 DNI Mahiru Shiina + Haruka Sakurai, NOTHING PERSONAL I just don't talk to doubles of my friends.
 </p>
-<img width="500" height="500" alt="what the hell" src="https://github.com/user-attachments/assets/8fa5af9d-3c92-4748-9a86-d47a1bf21fbe" />
