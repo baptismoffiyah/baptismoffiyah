@@ -18,7 +18,7 @@ OPEN to interacting w/ doubles and sourcemates.
 DNI Mahiru Shiina + Haruka Sakurai, NOTHING PERSONAL I just don't talk to doubles of my friends.
 </p>
 
-<p align="left"> testingggggggggggggggggggggggggggggggggggggggggggg <img align="center" src="https://github.com/baptismoffiyah/baptismoffiyah/blob/56a4671547ef215819e52e371341227e058e7096/test/what%20the%20hell.png">
+<p align="left"> testingggggggggggggggggggggggggggggggggggggggggggg test est eteagaedgaegaejghnae i9oheknmsdgjk ngwoeia tesdgsdf ghsio hrfhnmgdf ir ghsrighsn kmdfghiesr hndfgh se9hnres jkgsdpognsdfkmh dfioh  <img align="center" src="https://github.com/baptismoffiyah/baptismoffiyah/blob/56a4671547ef215819e52e371341227e058e7096/test/what%20the%20hell.png">
 <p align="left"> test
 <p align="left"> test
 <p align="left"> tst
