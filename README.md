@@ -1,5 +1,5 @@
 <p align="right">
-<img src="https://github.com/baptismoffiyah/baptismoffiyah/blob/0374fab9504a0d92567427db72e317da311255c3/test/do%20i%20really%20look%20like%20that%20oh%20my%20god.jpg" />
+<img width="100" length="100" src="https://github.com/baptismoffiyah/baptismoffiyah/blob/0374fab9504a0d92567427db72e317da311255c3/test/do%20i%20really%20look%20like%20that%20oh%20my%20god.jpg" />
 </p>
 
 <p align="left">
